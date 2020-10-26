@@ -41,7 +41,7 @@ Con Laura Pozzoli
 Laura Pozzoli insegna Hatha Yoga dal 2015 a Canzo e a Lecco. Si è formata presso la scuola Centro Como con Luisa Azzerboni ed il metodo Yoga Essenziale, ottenendo la certificazione all&#39;insegnamento nel 2017. Da allora ha proseguito la sua formazione in Italia e in Spagna, seguendo workshop e master di vario tipo con insegnanti italiani ed internazionali. Ha visitato l&#39;India nel 2017 per conoscere le radici dello yoga ed esplorarne i luoghi sacri. Il suo stile è hatha yoga su cui si fondono elementi di vinyasa, yin yoga e di yogaterapia.
 
 **ANUKALANA YOGA**
-ConSilvia Shyamali
+Con Silvia Shyamali
 
 **Quando** : il martedì dalle 19.00 alle 20.00
 
