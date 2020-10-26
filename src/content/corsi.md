@@ -10,7 +10,7 @@ path: /corsi
 | **LUNEDÌ** | **MARTEDÌ** | **MERCOLEDÌ** | **GIOVEDÌ** | **VENERDÌ** |
 | --- | --- | --- | --- | --- |
 | | h. 10.00 - 11.00 **Pilates** | | h. 7.00 - 8.00 **Yoga al Risveglio,** con Kyara | |
-| h. 19.00 - 20.00 Pilates | h. 19.00 - 20.00 **Anukalana Yoga** , con Silvia | h. 19.00 - 20.00 **Hata Yoga,** con Kyara | | h. 18.00 -19.00 **Vinyasa Yoga** , con Laura |
+| h. 19.00 - 20.00 Pilates | h. 19.00 - 20.00 **Anukalana Yoga** , con Silvia | h. 19.00 - 20.00 **Hata Yoga,** con Kyara | | h. 18.00 -19.00 **Vinyasa Yoga**, con Laura |
 | h. 20.00 - 22.30 Canto (Wild Flowers) | h. 20.30 -21.30 Mindfulness | | |
 
 **I NOSTRI CORSI ORA SONO ONLINE!**
